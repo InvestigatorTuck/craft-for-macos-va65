@@ -1,4 +1,4 @@
-
+Get the ultimate Craft for macOS integration with advanced Integration for Craft for macOS - dark mode and multi-device sync. Featuring dark mode and multi-device sync, it's the
 
 
 
